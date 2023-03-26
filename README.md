@@ -4,7 +4,7 @@ I am a web developer at a company, and I am a full time employee.
 
 I am also a validator newcomer to a protocol.
 
-maybe that's all, hopefully can answer about who I am ￼
+maybe that's all, hopefully can answer about who I am 
 
 
 
